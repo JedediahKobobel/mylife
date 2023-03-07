@@ -1,1 +1,1 @@
-# My name is Jedediah Kobobel "Jedi"
+# My Favorite beach is Homoa Bay
